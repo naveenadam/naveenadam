@@ -2,5 +2,5 @@
 - 👀 I’m interested in Data Analyst role
 - 🌱 I’m currently learning Data Analyst course
 - 💞️ I’m looking to collaborate on Data Analysis project 
-- 📫 How to reach me call me 9490214901
-- mail id:naveenadam143@gmail.com
+- 📫 How to reach me  https://www.linkedin.com/in/naveen-adama-19b497259/
+-
